@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=orekoto&label=meowers&color=gray&style=flat)
 
-Bello?
+[Bello?](https://rentry.co/gurin)
 
 ![GUnw732bwAAdwIV (3)](https://github.com/user-attachments/assets/f053802e-9708-4205-b52d-d8f4301861a5)
 
