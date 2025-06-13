@@ -1,4 +1,4 @@
 <div align="center">
 
   
-![](https://media1.tenor.com/m/TT6Yc2Ds5k8AAAAd/amane-momose-amane.gif)
+![sae-itoshi-rin-itoshi](https://github.com/user-attachments/assets/a37e682d-c308-4909-8977-e59a163ddf79)
