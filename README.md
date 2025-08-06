@@ -1,4 +1,4 @@
 
-![Gwnq5hPbAAAOnlr_30](https://github.com/user-attachments/assets/7871e43d-0d0b-47b3-b0e2-cc688e3a0a10)
+<img width="226" height="168" alt="Gt6JXJ6bIAAgsWM (2)" src="https://github.com/user-attachments/assets/3542ad14-d560-4518-9313-77f88c91b7bc" />
 
-[ata](https://218.atabook.org/) [rentry](https://rentry.co/sern)
+[ata](https://218.atabook.org/) ‍ ‍ · ‍ ‍ [rentry](https://rentry.co/renten) ‍ ‍ · ‍ ‍ [matching‬](https://rentry.co/sern) ‍ ‍❤︎‬
